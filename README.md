@@ -1,0 +1,2 @@
+# 7075644400
+The Westgate Resorts Foundation, created in early 2001, raises funds to be given primarily to charitable organizations in communities where Westgate employees live and work, including Orlando, Miami, Gatlinburg, Park City, Las Vegas, Myrtle Beach, Williamsburg and Branson.  More than $2 million each year is distributed to more than 100 different groups that are improving the quality of life for the people who need it most. One hundred percent of the funds donated to the Foundation are distributed to the charities the fund was created to help.
